@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ibrahimmelihhh
+- 👀 I’m interested in Science, Technology & Music
+- 🌱 I’m currently learning German, Italian
