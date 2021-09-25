@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ibrahimmelihhh
 - 👀 I’m interested in Science, Religion, History, Technology & Music.
-- 🌱 I know English and I’m currently learning German, French & Italian.
+- 🌱 I speak English and I’m currently learning German, French & Italian.
